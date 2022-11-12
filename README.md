@@ -15,6 +15,6 @@
 
 -> UNIX and Linux System Administration Handbook
 
-Download Link 1 - https://k00.fr/bt6dkglv
+Download Link 1 - https://mega.nz/folder/89syHBjY#PKdyqVMEJUlhclQEIuhWXA
 
 Download Link 2 - https://share.internxt.com/d/sh/folder/2d25fcde957f17998488/445b9a76ce618c26bc185ba30f4da9246e932b1ff9fd7d6a05fb93228873857a
